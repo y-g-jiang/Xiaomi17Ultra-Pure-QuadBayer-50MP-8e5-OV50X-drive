@@ -1,0 +1,1 @@
+# Xiaomi17Ultra-Pure-QuadBayer-50MP-8e5-OV50X-drive
